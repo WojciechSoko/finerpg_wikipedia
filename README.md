@@ -1,0 +1,1 @@
+<h1>Wkrótce powstawnie tu Wikipedia Serwera :D</h1>
