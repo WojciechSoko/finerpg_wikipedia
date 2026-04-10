@@ -1,1 +1,1 @@
-<h1>Wkrótce powstawnie tu Wikipedia Serwera :D</h1>
+<h1>Wkrótce powstawnie tu Wikipedia Serwera FineRPG.PL</h1>
